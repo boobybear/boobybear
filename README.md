@@ -2,7 +2,6 @@
 - 👀 I’m interested in making games/web dev
 - 🌱 I’m currently learning how to make games
 - 💞️ I’m looking to collaborate on Web dev projeects
-- 📫 How to reach me @61amour on disc and @61am.our on ig
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i graduated college before high school
 
